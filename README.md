@@ -4,4 +4,6 @@ Int friendly unless on red!! Wsp / Whisper to so I can see what you said faster!
 
 We do not mind making new friends at all and do not mind being touched/booped/kissed/ext ext haha
 
+ObSESSEDDD w/ our fictional sillies.. like we are actually abnormal about them lordy lord 💍💜
+
 ✼ •• ┈┈┈┈๑⋅⋯ ୨˚୧ ⋯⋅๑┈┈┈┈ •• ✼
